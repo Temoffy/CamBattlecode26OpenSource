@@ -15,3 +15,8 @@ Our bot's far from the flashiest or the cleanest, but it's served us well and ke
 5_bilbo_baggins March 18
 
 6_bilbo_baggins March 18
+
+7_arthur March 19
+
+8_arthur March 20
+
